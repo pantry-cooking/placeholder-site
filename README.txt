@@ -1,1 +1,0 @@
-Landing Page for https://pantry.cooking
